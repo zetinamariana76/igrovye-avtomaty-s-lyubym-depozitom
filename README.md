@@ -1,0 +1,1 @@
+# igrovye-avtomaty-s-lyubym-depozitom
